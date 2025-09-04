@@ -1,0 +1,2 @@
+# andmeteadus-sissejuhatus2025
+Andmeteaduse esmakursuslaste sissejuhatus
